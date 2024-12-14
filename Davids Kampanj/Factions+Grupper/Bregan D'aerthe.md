@@ -1,0 +1,1 @@
+Kriminellt nätverk från Underdark som slagit läger i östra slummen i [[Ravenport]]och är bestående av drows.

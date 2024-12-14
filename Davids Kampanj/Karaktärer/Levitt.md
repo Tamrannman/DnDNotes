@@ -1,0 +1,1 @@
+Äldre halfing som jobbar i Generalstore i [[Stroheim]] och som också är representant för staden i officiella ärenden. Munkfrisyr och sideburns.

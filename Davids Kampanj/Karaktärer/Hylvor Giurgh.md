@@ -1,0 +1,1 @@
+En handelsman som [[Tarion Vindghar]] & [[Alythara Auvryth]] pratade med på tavernan, erbjöd information om en brand i [[Ravenport]] samt erbjuder jobb som vakt på en caravan. Partyt antar jobbet och reser med honom till Ravenport. Han erbjuder fler jobb om vi behöver.

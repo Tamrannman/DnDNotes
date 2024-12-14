@@ -1,0 +1,1 @@
+Äldre Gruvarbetare från [[Stroheim]]. Har jobbat som det i 39 år. Berättar om staden.

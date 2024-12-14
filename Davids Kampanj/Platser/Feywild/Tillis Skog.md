@@ -1,0 +1,1 @@
+En skog full med magi som delvis blivit corrupted av en trollkarl. Den corrupterade delen täcks av skuggor och stoft och de flesta växter är helt döda.

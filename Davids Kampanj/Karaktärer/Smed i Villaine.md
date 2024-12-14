@@ -1,0 +1,1 @@
+Smeden vars dotter blev kidnappad av goblins och som gav partyt en bag of holding och lite basic gear som reward.

@@ -1,0 +1,1 @@
+Goblin leader i borgen i skogen som kidnappade smedens barn. Blev troligtvis dödad tillsammans med sitt camp av stadsvakterna från [[Villaine]] efter partyt berättade om deras bas.

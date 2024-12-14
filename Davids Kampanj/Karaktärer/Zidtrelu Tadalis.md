@@ -1,0 +1,1 @@
+Male drow som arbetat för [[Gortax]] tidigare. Träffade på honom i fängelsehålan och har något otalt med [[huset Medani]] som [[Alythara Auvryth]]'s ring representerar.

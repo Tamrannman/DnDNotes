@@ -1,0 +1,1 @@
+En vakt från [[Villaine]] som hjälper partyt att få ett intyg om att de hjälpt staden som de kan ge till first ranger of [[Ravenport]].

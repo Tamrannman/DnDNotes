@@ -1,0 +1,1 @@
+Stad på annan kontinenten med samma namn. (Kontinenten Hesperia och City of Hesperia)
